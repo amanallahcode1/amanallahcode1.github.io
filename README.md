@@ -1,1 +1,1 @@
-# nkuek.github.io
+# amanallahcode1.github.io
